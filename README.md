@@ -1,7 +1,7 @@
 # The Tao of the Spiritual Warrior
 
 <p align="center">
-<img align="center" src="https://spiritual-warrior.org/images/spiritual-warrior.jpg" alt="The Tao of the Spiritual Warrior" width="640" height="426"/>
+<img align="center" src="https://spiritual-warrior.org/images/the-tao-of-the-spiritual-warrior.jpg" alt="The Tao of the Spiritual Warrior" width="640" height="426"/>
 </p>
 
 #### **Embark on a transformative journey of self-discovery and enlightenment.**
