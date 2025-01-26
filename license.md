@@ -21,5 +21,7 @@ You can view the full license text at the following link: [Creative Commons Attr
 
 ### Credits
 
-- **Image credit**: © iStock / Shutterstock
-- **Audio credit**: [Melanie Carey](https://melaniecarey.com)
+- Written by Cristy &mdash; who envisioned this narrative decades ago and patiently gathered wisdom over the years before sharing these profound revelations with the world.
+- Edited by: [John Rickards](https://johnrickards.com) — With a keen eye for detail and extensive editing experience, John ensured the content is polished and coherent.
+- Audio Narration by: [Melanie Carey](https://melaniecarey.com) — Melanie brought the text to life with her captivating voice, making the audio experience engaging and enjoyable.
+- Image Credits: All visual content is credited to © iStock and Shutterstock, ensuring high-quality and professional imagery.
