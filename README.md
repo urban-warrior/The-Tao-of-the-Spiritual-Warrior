@@ -1,5 +1,3 @@
-# The Tao of the Spiritual Warrior
-
 <p align="center">
 <img align="center" src="https://spiritual-warrior.org/image/the-tao-of-the-spiritual-warrior-cover-art.webp" alt="The Tao of the Spiritual Warrior" width="600" height="600"/>
 </p>
