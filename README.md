@@ -18,7 +18,7 @@ A spiritual warrior is someone who tries to live in tune with the world around t
 
 ### **Browse Teachings**
 
-Here are some key strategies in [The Tao of the Spiritual Warrior](https://youtu.be/8tDiWDwyS4k):
+Here are some key strategies in [The Tao of the Spiritual Warrior](https://www.youtube.com/@tao-spiritual-warrior):
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Each chapter delves into a unique aspect of spirituality and can be explored in any order.
 
